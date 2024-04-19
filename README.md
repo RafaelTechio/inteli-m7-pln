@@ -1,0 +1,1 @@
+# inteli-m7-pln
